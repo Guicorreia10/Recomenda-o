@@ -1,3 +1,3 @@
 ## Carta de Recomendação
 
-[Carta da Professora Doutora Virginie Felizardo]
+[Carta da minha orientadora de projeto Professora Doutora Virginie Felizardo]
